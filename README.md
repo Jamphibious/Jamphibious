@@ -5,4 +5,4 @@
 - 📫 How to reach me:
       - E-mail: jamphibious@outlook.com
       - Discord: Jamphibious#7184
-      - Twitter: @Jamphibious
+      - Twitter: @JamphibiousFM
